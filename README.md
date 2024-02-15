@@ -1,3 +1,1 @@
-<hr>
-<img src="https://www.illuminatiparty.tk/media/header-1500x260.png">
-<hr>
+Hey hey hey, so someone is viewing my profile?! Come on, say hi! This is a unique chance!!
